@@ -1,1 +1,1 @@
-# minindudana.github.io
+# kinspur.me
